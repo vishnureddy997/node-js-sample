@@ -1,14 +1,1 @@
 web: node index.js
-
-mdsfhbaehfkjaaefjkefaj
-jgkuhli
-bgchgdtjcfjgj
-m,jhkliklhkjlkjkvhjk
-a\SFH QJJWHDGKwyfdwiwgduw
-jfhdtry
-ngfchghgxdfhjasgdhkadgfuadfakgjf
-nhfdiuytfdsfyuioiuy
-mnvjhuygufuftyyu
-wdefefgt34g
-2EEE13R31R13
-qe31r234t35y
